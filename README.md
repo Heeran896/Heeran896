@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ethical hacking
 - 🌱 I’m currently learning cyber security and ethical hacking
 - 💞️ I’m looking to collaborate on CEH, CCNA & CCNP
-- 📫 How to reach me WWW.Heran Rajbanshi facebook.com
+- 📫 How to reach me https://m.facebook.com/100078994401616/
 - 😄 Pronouns: Hiran 
 - ⚡ Fun fact: ...
 
